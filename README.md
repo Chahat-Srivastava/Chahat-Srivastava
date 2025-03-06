@@ -10,6 +10,8 @@
 - 📫 How to reach me **chahatsrivastava019@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1GO9wC8wk6rb1G9N6Uq_MjIMZKoXIFuYy/view?usp=sharing](https://drive.google.com/file/d/1GO9wC8wk6rb1G9N6Uq_MjIMZKoXIFuYy/view?usp=sharing)
+  
+- 📄 Know about my experiences [Portfolio](https://chahat-srivastava.github.io/portfolio/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
